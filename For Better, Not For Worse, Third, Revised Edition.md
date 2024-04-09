@@ -78,19 +78,192 @@ PART I. THE CODE OF CHRISTIAN MARRIAGE ETHICS
    6. Is There a Higher Happiness?
    7. Marriage Blessings — by Contrast
 
-PART II. PATHWAYS TO PURITY 4. THE CHRIST WHO CLEANSES 1. The Appeal for Purity 2. "Thy Sins are Forgiven" 3. "New Creatures" 4. "Without Me Ye can Do Nothing" 5. "We would See Jesus" 5. SANCTIFIED BY THE WORD 1. The Assault on Biblical Morality 2. No Condoned Immorality in the Scriptures 3. A Divine Impulse to Purity 4. The Church's Plain Counsel 6. THE PURIFYING SACRAMENT 1. "My Body . . . My Blood" 2. Cleansing Grace 3. "This Do" 7. CHASTITY THROUGH PRAYER 1. Prayer Assailed ...  
- 2. Are Our Prayers Answered? 3. Why is Prayer Neglected? 4. Prayer that Prevails
+PART II. PATHWAYS TO PURITY
 
-PART III. THE OFFENSIVE AGAINST CHRISTIAN MORALITY CHAPTER 8. MARRIAGE FROM GOD - NOT FROM THE GORILLA 1. The Theory of Brute Beginning 2. Marriage Not from the Apes 3. Marriage — a Divine Bestowal 4. The Holiness of Christian Marriage 9. THE SOCIOLOGICAL NIGHTMARE 1. Veneered Savagery? 2. Facts or Fiction? 3. A Reeling, Drunken Science 4. The Frothy Phobia of Epileptic Morality 10. THE COMMUNISTIC SABOTAGE OF MATRIMONY 1. Radicalism in America 2. The Socialist-Communist Platform on Marriage 3. Soviet Marriage Amorality 4. The Recoil 5. America, Wake Up! 11. CAMPUS SCOFFERS 1. Collegiate Morality 2. From the Lips of Cultural Leaders 3. Public Enemy No. 1 4. Campus Ridicule of Marriage 5. The Lowest Levels 6. The Academic Betrayal of Christ 7. Chaotic Consequences 8. The Challenge to the Church 12. THE PERVERSIONS OF PSYCHOANALYSIS 1. The Elements of Freudianism 2. Science Says "No" to Psychoanalysis 3. Psychoanalysis Indicted on the Count of Immorality Freudianism vs. Christianity 13. CULTIC ZEALOTS OF IMPURITY 1. The Insinuations of Swamism and Yogism 2. Spiritism's Debauch 3. The Contravention of Christian Science 4. The Menace of Mormonism Swedenborgianism Indicted 5. Antimarriage Cults 14. MODERNISM THE DOGMA OF DECADENCE 1. Buccaneer Tactics 2. The Liberal Clergy on Marriage 3. Modernist Champions for Divorce and Birth Control 4. The Exile of Sin 5. Buchmanism and Its "Sharing" 6. The Appeal of a Crisis 15. THE LITERATURE OF LUST 1. Racket Books 2. Sex-mad Magazines 3. Gangrenous Fiction 4. What Price Bawdiness? 16. MORONIC MOTION-PICTURES 1. Cinema Propagandists 2. Film Morality Tabulated 3. The Motion-picture Masquerade of Marriage 4. The Challenge of a Crisis 17. HAZARDS OF THE NEW AGE 1. Perils of the New Freedom 2. Demoralizing Leisure 3. Fatal Friendships 4. Drooping Office Ethics 5. Intemperance 6. The Suggestive Dance
+4. THE CHRIST WHO CLEANSES
+   1. The Appeal for Purity
+   2. "Thy Sins are Forgiven"
+   3. "New Creatures"
+   4. "Without Me Ye can Do Nothing"
+   5. "We would See Jesus"
+5. SANCTIFIED BY THE WORD
+   1. The Assault on Biblical Morality
+   2. No Condoned Immorality in the Scriptures
+   3. A Divine Impulse to Purity
+   4. The Church's Plain Counsel
+6. THE PURIFYING SACRAMENT
+   1. "My Body . . . My Blood"
+   2. Cleansing Grace
+   3. "This Do"
+7. CHASTITY THROUGH PRAYER
+   1. Prayer Assailed ...
+   2. Are Our Prayers Answered?
+   3. Why is Prayer Neglected?
+   4. Prayer that Prevails
 
-PART IV. CRITERIA OF HAPPY CHOICE 18. THE BEST MARRIAGE AGE 1. A Protracted Debate 2. Not Too Early! 3. Not Too Late! 4. Not Too Dissimilar 19. BEAUTY PLUS 1. No Pagan Cult of the Body! 2. The Secret of Charm Attractive Clothing 3. Health and Eugenics 4. The Church and Faddist Eugenics 5. The Eugenic Elysium 6. Inbreeding 20. No DOLLAR-SIGN MARRIAGES 1. The Protest against Dollar-sign Marriages 2. The Perils of Money-mindedness 3. The Better Way 4. Premarriage Finances 5. Extravagance in Courtship 6. Practical Problems 7. Secret Marriage — and Worse 21. THE I. Q. FOR HAPPY MARRIAGES 1. One-sided Genius 2. College Training, Domestic Asset or Liability? 3. Avoid Educational Gulfs! 4. Don't Stop Studying! 22. MIXED MARRIAGES 1. The Unequal Yoke of Faith and Unbelief Christian and Jewish Intermarriage 2. Interdenominational Marriages 3. Mixed Marriage of Catholics and Protestants 4. True Spiritual Unity 23. PIVOTAL PARENTS 1. Parental Self-absorption 2. Father, Key-man of Our Social Order Parental Autocracy 3. "In-laws" — Domestic Out-laws 4. The Sins of the Children The Right to Choose 5. "Thou shalt Honor Thy Father and Tby Mother" 24. THOSE WHO WAIT - AND WONDER 1. The Problem Stated 2. No Marriage Markets! 3. Mail-order Marriages 4. Candid Advice 5. Achievements of the Unmarried
+PART III. THE OFFENSIVE AGAINST CHRISTIAN MORALITY CHAPTER
 
-PART V. COURTSHIP, ENGAGEMENT, AND MARRIAGE 25. "KEEP THYSELF PURE" 1. Exponents of Unrestraint 2. Cheap — Vulgar — Sordid! 3. "Unclean! Unclean!" 4. The Spoliations of Lust Premarriage Examination 5. Strength in Chastity .. 26. ENGAGED! 1. Betrothal in the Bible 2. Engagement Today 3. The Church's Ideal 4. A Profound Lesson 5. A Thrilling Prelude 6. A Time of Preparation 27. AT THE ALTAR OF THE LORD  
- 1. Vulgar Exbibitionism 2. American Gretna Greens 3. The Marrying Parsons 4. A Christian Ceremony for Christians In Church or in the Parsonage? 5. An Intelligent Understanding of the Marriage Vows 6. The Marriage Ceremony 7. Here Comes the Pride
+8. MARRIAGE FROM GOD - NOT FROM THE GORILLA
+   1. The Theory of Brute Beginning
+   2. Marriage Not from the Apes
+   3. Marriage — a Divine Bestowal
+   4. The Holiness of Christian Marriage
+9. THE SOCIOLOGICAL NIGHTMARE
+   1. Veneered Savagery?
+   2. Facts or Fiction?
+   3. A Reeling, Drunken Science
+   4. The Frothy Phobia of Epileptic Morality
+10. THE COMMUNISTIC SABOTAGE OF MATRIMONY
+    1. Radicalism in America
+    2. The Socialist-Communist Platform on Marriage
+    3. Soviet Marriage Amorality
+    4. The Recoil
+    5. America, Wake Up!
+11. CAMPUS SCOFFERS
+    1. Collegiate Morality
+    2. From the Lips of Cultural Leaders
+    3. Public Enemy No. 1
+    4. Campus Ridicule of Marriage
+    5. The Lowest Levels
+    6. The Academic Betrayal of Christ
+    7. Chaotic Consequences
+    8. The Challenge to the Church
+12. THE PERVERSIONS OF PSYCHOANALYSIS
+    1. The Elements of Freudianism
+    2. Science Says "No" to Psychoanalysis
+    3. Psychoanalysis Indicted on the Count of Immorality Freudianism vs. Christianity
+13. CULTIC ZEALOTS OF IMPURITY
+    1. The Insinuations of Swamism and Yogism
+    2. Spiritism's Debauch
+    3. The Contravention of Christian Science
+    4. The Menace of Mormonism Swedenborgianism Indicted
+    5. Antimarriage Cults
+14. MODERNISM THE DOGMA OF DECADENCE
+    1. Buccaneer Tactics
+    2. The Liberal Clergy on Marriage
+    3. Modernist Champions for Divorce and Birth Control
+    4. The Exile of Sin
+    5. Buchmanism and Its "Sharing"
+    6. The Appeal of a Crisis
+15. THE LITERATURE OF LUST
+    1. Racket Books
+    2. Sex-mad Magazines
+    3. Gangrenous Fiction
+    4. What Price Bawdiness?
+16. MORONIC MOTION-PICTURES
+    1. Cinema Propagandists
+    2. Film Morality Tabulated
+    3. The Motion-picture Masquerade of Marriage
+    4. The Challenge of a Crisis
+17. HAZARDS OF THE NEW AGE
+    1. Perils of the New Freedom
+    2. Demoralizing Leisure
+    3. Fatal Friendships
+    4. Drooping Office Ethics
+    5. Intemperance
+    6. The Suggestive Dance
 
-PART VI. TWIN MENACES TO WEDDED HAPPINESS CHAPTER 28. THE BLIGHT OF BIRTH CONTROL 1. Shrinking Families 2. The Overpopulation Bugaboo 3. Prevention of Infant Mortality 4. Retardation of Child Development 5. Elimination of Unfit 6. Maternal Relief 7. Miscellaneous Birth-control Arguments 8. The Physical Penalty 9. An Outrage against Nature 10. A Moral Degradation 11. A Divorce Stimulus 12. A Menace to National Prosperity 13. Crafty Commercialism 14. Its Anti-Scriptural Bias 15. The Attitude of Modern Churches 16. The Church's Position 17. Happiness through Adoption 29. DIVORCE 1. A Nation of Home-breakers 2. No Promise of Improvement 3. What Is Wrong with Divorce? 4. The Bible on Divorce 5. Anti-Scriptural Attitudes 6. The Annulment Orgy 7. Remarriage after Divorce 8. Companionate Marriage and Divorce 9. Antidotes to Divorce
+PART IV. CRITERIA OF HAPPY CHOICE
 
-PART VII. ELEMENTS OF WEDDED HAPPINESS 30. ﻿﻿﻿﻿"... AND OBEY" 1. The Fight for Women's Rights 2. The Flares of Feminism 3. The Anti-"obey" Campaign 4. "The Husband Is the Head of the Wife" 5. Husbandly Headship - How Far? 6. "Even as Christ Loved the Church" 31. ﻿﻿﻿﻿CRADLE OR CAREER? 1. The World's Greatest Women 2. America's Greatest Women 3. "Thou Excellest Them All" 4. Career after Marriage? 5. Champions of Working Wives 6. The Clash of Career and Domestic Interests 32. BACK TO DOMESTICITY! 1. The Practical Housewife 2. Premarriage Training 3. The Golden A-b-c of Family Felicity 33. ﻿﻿﻿﻿FAMILY FINANCES 1. Increased Levies on the Household Treasury 2. Agencies of Financial Embarrassment 3. A New Era with Financial Adjustment 4. Budget Blessings 5. Partners in Family Finance 34. ﻿﻿﻿﻿OWN YOUR OWN 1. Financial Attractions of Home-ownership 2. More than Dreams of Profit 3. Opposing Attitudes 4. The Acquisition of a Home 5. "Bless This House" 35. ﻿﻿﻿﻿QUICKSAND COUNSEL 1. Newspaper Counselors 2. Medical Counselors 3. Scientific Counsel 4. The Counsel of Superstition 5. Educational Counsel 36. ﻿﻿﻿﻿AT THE FAMILY ALTAR 1. Breaking with the Past 2. Radiated Blessings 3. The Supreme Tragedy 4. No Apologies for Family Prayers! 5. A Program for Hearthside Devotions 6. "As for Me and My House" 37. ﻿﻿﻿﻿THE SECOND MARRIAGE 1. The Protest of Christianity 2. Dangers and Difficulties in Remarriage 3. No Death-bed Pledges! 38. ﻿﻿﻿﻿THE REUNION IN HEAVEN 1. Eternity - No Nirvana 2. The Comfort of the Scriptures 3. "As the Angels of God in Heaven" 4. The Appeal of Heavenly Reunion
+18. THE BEST MARRIAGE AGE
+1.  A Protracted Debate
+1.  Not Too Early!
+1.  Not Too Late!
+1.  Not Too Dissimilar
+1.  BEAUTY PLUS
+    1.  No Pagan Cult of the Body!
+    2.  The Secret of Charm Attractive Clothing
+    3.  Health and Eugenics
+    4.  The Church and Faddist Eugenics
+    5.  The Eugenic Elysium
+    6.  Inbreeding
+1.  No DOLLAR-SIGN MARRIAGES
+    1.  The Protest against Dollar-sign Marriages
+    2.  The Perils of Money-mindedness
+    3.  The Better Way
+    4.  Premarriage Finances
+    5.  Extravagance in Courtship
+    6.  Practical Problems
+    7.  Secret Marriage — and Worse
+1.  THE I. Q. FOR HAPPY MARRIAGES
+    1.  One-sided Genius
+    2.  College Training, Domestic Asset or Liability?
+    3.  Avoid Educational Gulfs!
+    4.  Don't Stop Studying!
+1.  MIXED MARRIAGES
+    1.  The Unequal Yoke of Faith and Unbelief Christian and Jewish Intermarriage
+    2.  Interdenominational Marriages
+    3.  Mixed Marriage of Catholics and Protestants
+    4.  True Spiritual Unity
+1.  PIVOTAL PARENTS
+    1.  Parental Self-absorption
+    2.  Father, Key-man of Our Social Order Parental Autocracy
+    3.  "In-laws" — Domestic Out-laws
+    4.  The Sins of the Children The Right to Choose
+    5.  "Thou shalt Honor Thy Father and Tby Mother"
+1.  THOSE WHO WAIT - AND WONDER
+    1.  The Problem Stated
+    2.  No Marriage Markets!
+    3.  Mail-order Marriages
+    4.  Candid Advice
+    5.  Achievements of the Unmarried
+
+PART V. COURTSHIP, ENGAGEMENT, AND MARRIAGE
+
+25. "KEEP THYSELF PURE"
+1.  Exponents of Unrestraint
+1.  Cheap — Vulgar — Sordid!
+1.  "Unclean! Unclean!"
+1.  The Spoliations of Lust Premarriage Examination
+1.  Strength in Chastity
+1.  ENGAGED!
+    1.  Betrothal in the Bible
+    2.  Engagement Today
+    3.  The Church's Ideal
+    4.  A Profound Lesson
+    5.  A Thrilling Prelude
+    6.  A Time of Preparation
+1.  AT THE ALTAR OF THE LORD
+    1.  Vulgar Exbibitionism
+    2.  American Gretna Greens
+    3.  The Marrying Parsons
+    4.  A Christian Ceremony for Christians In Church or in the Parsonage?
+    5.  An Intelligent Understanding of the Marriage Vows
+    6.  The Marriage Ceremony
+    7.  Here Comes the Pride
+
+PART VI. TWIN MENACES TO WEDDED HAPPINESS
+
+28. THE BLIGHT OF BIRTH CONTROL
+1.  Shrinking Families
+1.  The Overpopulation Bugaboo
+1.  Prevention of Infant Mortality
+1.  Retardation of Child Development
+1.  Elimination of Unfit
+1.  Maternal Relief
+1.  Miscellaneous Birth-control Arguments
+1.  The Physical Penalty
+1.  An Outrage against Nature
+1.  A Moral Degradation
+1.  A Divorce Stimulus
+1.  A Menace to National Prosperity
+1.  Crafty Commercialism
+1.  Its Anti-Scriptural Bias
+1.  The Attitude of Modern Churches
+1.  The Church's Position
+1.  Happiness through Adoption
+1.  DIVORCE
+    1.  A Nation of Home-breakers
+    2.  No Promise of Improvement
+    3.  What Is Wrong with Divorce?
+    4.  The Bible on Divorce
+    5.  Anti-Scriptural Attitudes
+    6.  The Annulment Orgy
+    7.  Remarriage after Divorce
+    8.  Companionate Marriage and Divorce
+    9.  Antidotes to Divorce
+
+PART VII. ELEMENTS OF WEDDED HAPPINESS 30. "... AND OBEY" 1. The Fight for Women's Rights 2. The Flares of Feminism 3. The Anti-"obey" Campaign 4. "The Husband Is the Head of the Wife" 5. Husbandly Headship - How Far? 6. "Even as Christ Loved the Church" 31. CRADLE OR CAREER? 1. The World's Greatest Women 2. America's Greatest Women 3. "Thou Excellest Them All" 4. Career after Marriage? 5. Champions of Working Wives 6. The Clash of Career and Domestic Interests 32. BACK TO DOMESTICITY! 1. The Practical Housewife 2. Premarriage Training 3. The Golden A-b-c of Family Felicity 33. FAMILY FINANCES 1. Increased Levies on the Household Treasury 2. Agencies of Financial Embarrassment 3. A New Era with Financial Adjustment 4. Budget Blessings 5. Partners in Family Finance 34. OWN YOUR OWN 1. Financial Attractions of Home-ownership 2. More than Dreams of Profit 3. Opposing Attitudes 4. The Acquisition of a Home 5. "Bless This House" 35. QUICKSAND COUNSEL 1. Newspaper Counselors 2. Medical Counselors 3. Scientific Counsel 4. The Counsel of Superstition 5. Educational Counsel 36. AT THE FAMILY ALTAR 1. Breaking with the Past 2. Radiated Blessings 3. The Supreme Tragedy 4. No Apologies for Family Prayers! 5. A Program for Hearthside Devotions 6. "As for Me and My House" 37. THE SECOND MARRIAGE 1. The Protest of Christianity 2. Dangers and Difficulties in Remarriage 3. No Death-bed Pledges! 38. THE REUNION IN HEAVEN 1. Eternity - No Nirvana 2. The Comfort of the Scriptures 3. "As the Angels of God in Heaven" 4. The Appeal of Heavenly Reunion
 
 INDEX
 
@@ -138,17 +311,17 @@ Not all religion, however; for as youth stands at the cross-roads, Christ's code
 
 What are these Christian pronouncements on marriage? A large library of conflicting interpretations clamors for recogni-tion; but if the clear statements of the Scriptures are accepted, the code which the Church gives its young people demands the definite endorsement of these basic truths:
 
-1.  Marriage is a divine institution, established by God Him-self. It is not a social evolution or a heritage from any alleged brute ancestry. As the gift of God, sex, marriage, and family life are holy; and even though disfigured by sin, they should be honored by all men as divine bestowals.
-2.  Christian marriage is a blessed ordinance, which leads to multiplied benedictions both for those in wedlock and for the race in general. Faithfulness to its requirements, under God, promotes individual and national well-being and progress.
-3.  Marriage is ultimately the normal state for most people. To exalt intentional abstinence from marriage as more holy and God-pleasing, wilfully to spurn wedded life in the pursuit of self-centered ambitions, is to contradict God's wisdom.
+1. Marriage is a divine institution, established by God Him-self. It is not a social evolution or a heritage from any alleged brute ancestry. As the gift of God, sex, marriage, and family life are holy; and even though disfigured by sin, they should be honored by all men as divine bestowals.
+2. Christian marriage is a blessed ordinance, which leads to multiplied benedictions both for those in wedlock and for the race in general. Faithfulness to its requirements, under God, promotes individual and national well-being and progress.
+3. Marriage is ultimately the normal state for most people. To exalt intentional abstinence from marriage as more holy and God-pleasing, wilfully to spurn wedded life in the pursuit of self-centered ambitions, is to contradict God's wisdom.
 
 4) Christian marriage is monogamous, the union of one man and one woman. Forsaking all others, the Christian husband and wife are to cleave only and always to each other.
 5) Christian marriage is established only by free will and mutual consent. Christian children must not be forced to marry any one whom they cannot love. Yet young people are bound to consult their parents and to respect their advice, provided this does not overrule divine will.
 
-6.  The marriage union is lifelong, and termination, except by death, always involves a transgression of the divine Law by either husband or wife or both. Divorce is permitted only in the case of marital unfaithfulness. Malicious desertion breaks the marriage relation.
-7.  In the choice of a companion for life the decisive factor should not be wealth, physical attraction, higher education, and social position, but common devotion to the one Lord and Savior, the harmony of religious oneness. With the exception of the close degrees of relationship within which a Christian may not marry, there are no restrictions in the choice of husband or wife. A general compatibility of age, culture, and race is normally essential for sustained happiness.
-8.  In the Christian family the husband is the representative head before God and man; the wife is the helping companion. The sphere of her highest activity is the home.
-9.  An avowed purpose of Christian matrimony is the procreation of children. Where this first injunction, "Be fruitful and multiply," is wilfully disregarded and artificial means are employed to evade the responsibilities and privileges of parenthood, the full blessings of marriage will be sacrificed.
+6. The marriage union is lifelong, and termination, except by death, always involves a transgression of the divine Law by either husband or wife or both. Divorce is permitted only in the case of marital unfaithfulness. Malicious desertion breaks the marriage relation.
+7. In the choice of a companion for life the decisive factor should not be wealth, physical attraction, higher education, and social position, but common devotion to the one Lord and Savior, the harmony of religious oneness. With the exception of the close degrees of relationship within which a Christian may not marry, there are no restrictions in the choice of husband or wife. A general compatibility of age, culture, and race is normally essential for sustained happiness.
+8. In the Christian family the husband is the representative head before God and man; the wife is the helping companion. The sphere of her highest activity is the home.
+9. An avowed purpose of Christian matrimony is the procreation of children. Where this first injunction, "Be fruitful and multiply," is wilfully disregarded and artificial means are employed to evade the responsibilities and privileges of parenthood, the full blessings of marriage will be sacrificed.
 10. Christian marriage must have a spiritual basis in the reverent acknowledgment of Jesus Christ, the Savior of all men, and in the abiding presence of His comforting and sustaining Spirit. The family altar is to be the effective pledge against shattered promises and broken hearts.
 11. Christian marriage must be marked by an intensity of self-sacrificing love. Wedded life characterized by frigid aloofness is not only greatly displeasing to God, but also soon becomes a caricature of the true conjugal devotion.
 12. To prepare themselves for these blessings and to meet these high requirements, young people should ask the help of God in leading clean, courageous lives and avoiding all concessions to impurity. Sin poisons their happiness and will rise up later as a specter of reproach. Only after a careful and prayerful selection of the future helpmate, when all uncertainty has disappeared, should the mutual promise be given in engagement.
@@ -267,13 +440,13 @@ Read the current advertisements, and you will believe that a happy marriage depe
 
 To offer a concise, workable, every-day help for the attainment of the high ideals of Christian marriage, I give this prescription for wedded happiness:
 
-1.  "Whatever ye do [in courtship and in marriage] in word and deed, do all in the name of the Lord Jesus!"
-2.  Make Christ the Counselor in your wedding plans by invoking His help through prayer!
-3.  Focus home ideals on this central, pivotal point: "My partner in life must be of my faith, my Church. We must both worship the same Christ in the same sincerity and devotion!"
-4.  Resolve: Every Sunday, with only those exceptions which necessity demands, will find me with my beloved one in church!
-5.  Resolve: From the first day of our wedded life, in sunshine and shadow, in health and sickness, in prosperity and poverty, our home will be a Church of Christ where the Savior will be worshiped in the study of His Word and in prayer!
-6.  Resolve: Christ will be the ennobling, uplifting, refining, selfishness-destroying power in my life, so that, instead of insisting upon rights, I will live in and by the spirit of the humble, self-giving Savior!
-7.  Resolve: All problems and perplexities that may arise in my household will be decided not by the dictates of popular opinion and wide-spread practice but by clear statements of the Word of God!
+1. "Whatever ye do [in courtship and in marriage] in word and deed, do all in the name of the Lord Jesus!"
+2. Make Christ the Counselor in your wedding plans by invoking His help through prayer!
+3. Focus home ideals on this central, pivotal point: "My partner in life must be of my faith, my Church. We must both worship the same Christ in the same sincerity and devotion!"
+4. Resolve: Every Sunday, with only those exceptions which necessity demands, will find me with my beloved one in church!
+5. Resolve: From the first day of our wedded life, in sunshine and shadow, in health and sickness, in prosperity and poverty, our home will be a Church of Christ where the Savior will be worshiped in the study of His Word and in prayer!
+6. Resolve: Christ will be the ennobling, uplifting, refining, selfishness-destroying power in my life, so that, instead of insisting upon rights, I will live in and by the spirit of the humble, self-giving Savior!
+7. Resolve: All problems and perplexities that may arise in my household will be decided not by the dictates of popular opinion and wide-spread practice but by clear statements of the Word of God!
 
 ### THE PLEDGE OF MULTIPLIED BLESSINGS
 
@@ -945,8 +1118,8 @@ Woman, merely a chattel under the old régime, is scheduled to reach an absolute
 
 With these theories codified into formal legislation, many of them practiced for a decade and a half, skeptical investigators are entitled to ask for a summary of results. The survey presents a revolting orgy of animal lust, almost unbelievable consequences of a moral collapse, which may be tabulated in this catalog of horror:
 
-1.  In all civilized countries Russia has been stigmatized by the unenviable preeminence of having the largest number of girls who become unmarried mothers between the ages of twelve and fifteen.
-2.  Russian childhood has become a hideous symptom of the Soviet destruction of the family. Dr. Ivan Ilyin, formerly professor at the University of Moscow, in The Book of the Need of Russian Christianity, drew this horrible picture, which, in spite of recent improvements, shows how disastrous Communism may be: "Out of confiscation, out of impoverishment, out of civil war, out of hunger, out of epidemics of disease, and especially out of the destruction of marriages and family life a peculiar social stratum of neglected children has come into existence in Soviet Russia. Several million of these unfortunate little martyrs, boys and girls from the age of six to eighteen years, wander like Gipsies over the countryside. Without parents, without homes, clothed in rags, filthy, infested with lice, prostituted, infected with venereal diseases, deadening their consciences with cocaine and other drugs, they make their livelihood by begging, by robbing, and by stealing. The government does not know what to do with them. Some 75 to 80 per cent of these children are from the families of farmers and laborers. Unable to cope with conditions, they are dying in need and in misery, but the gaps in their ranks are always filled again by children newly cast off. Their number is estimated at a tremendously high figure by the well-known communistic leader Bucharin. A small number of these children are being cared for in communistic children's homes, where they are introduced to the joys and happiness of education for future Communism."
+1. In all civilized countries Russia has been stigmatized by the unenviable preeminence of having the largest number of girls who become unmarried mothers between the ages of twelve and fifteen.
+2. Russian childhood has become a hideous symptom of the Soviet destruction of the family. Dr. Ivan Ilyin, formerly professor at the University of Moscow, in The Book of the Need of Russian Christianity, drew this horrible picture, which, in spite of recent improvements, shows how disastrous Communism may be: "Out of confiscation, out of impoverishment, out of civil war, out of hunger, out of epidemics of disease, and especially out of the destruction of marriages and family life a peculiar social stratum of neglected children has come into existence in Soviet Russia. Several million of these unfortunate little martyrs, boys and girls from the age of six to eighteen years, wander like Gipsies over the countryside. Without parents, without homes, clothed in rags, filthy, infested with lice, prostituted, infected with venereal diseases, deadening their consciences with cocaine and other drugs, they make their livelihood by begging, by robbing, and by stealing. The government does not know what to do with them. Some 75 to 80 per cent of these children are from the families of farmers and laborers. Unable to cope with conditions, they are dying in need and in misery, but the gaps in their ranks are always filled again by children newly cast off. Their number is estimated at a tremendously high figure by the well-known communistic leader Bucharin. A small number of these children are being cared for in communistic children's homes, where they are introduced to the joys and happiness of education for future Communism."
 
 How a cutthroat attack on Christ is being waged in the unequal battle of Soviet elders against their bewildered children is told by Joseph Duie, former Belgian consul in Russia and representative of the Nansen Mission for the Relief of Famine Sufferers in Southwest Russia, in his Moscow Unmasked:
 
@@ -1577,15 +1750,15 @@ Mr. Paul G. Cressey, in Boys Movies and City Streets, collaborating with Frederi
 
 I submit one sample of a newspaper advertisement, the suggestions for which are furnished to the exhibitors by the publicity departments of the studios. Read the following bait and lure printed in the Lexington (Kentucky) Herald, advertising the film Divorce among Friends, and you have a sample. of the immorality that regulates the motion-picture industry. Against a background decorated by an undraped female figure we find these "rules" for "The New Marriage":
 
-1.  Don't let marriage interfere with pleasure.
-2.  Love and let love.
-3.  Fair exchange's no snobbery.
-4.  Marry in haste — divorce with pleasure.
-5.  Every man should take a wife — but be careful whose wife you take!
-    Below come these catch-phrase head-lines:
-    Wedding Bells. Off with the old love —
-    Teasing Bells. On with the new -
-    Divorce Bells. It's a Pleasure.
+1. Don't let marriage interfere with pleasure.
+2. Love and let love.
+3. Fair exchange's no snobbery.
+4. Marry in haste — divorce with pleasure.
+5. Every man should take a wife — but be careful whose wife you take!
+   Below come these catch-phrase head-lines:
+   Wedding Bells. Off with the old love —
+   Teasing Bells. On with the new -
+   Divorce Bells. It's a Pleasure.
 
 This smut has provoked a revolt even among notable figures in the film world. Welford Beaton, editor of the Hollywood Spectator (whose technical opinion is valued so highly that Cecil De Mille wrote the preface to his Know Your Movies), hurls this ultimatum at the producers: "The other day I was watching with keen appreciation of its many artistic qualities The Easiest Way, Constance Bennett's starring vehicle, produced by Metro. For the second time in my life there was an exact moment when the point of revulsion was reached. I had had enough of sex. I want no more of it in my screen entertainment. ... The makers of our screen entertainment may continue to earn dividends by selling the immorality of women, but no longer can they sell it to me. I serve notice that every sex picture that I review from now on is going to be estimated for what it is— a filthy thing manufactured by business men."
 
@@ -2424,10 +2597,10 @@ Because it is morally wrong for our young people to be married by Roman Catholic
 
 To prevent such spiritual disaster, however, every caution should be exercised. For the advice of those to whom the question of mixed marriage looms as a grave personal problem I suggest the following:
 
-1.  Every member of our Church, pledged to its truth and its support, must earnestly and prayerfully resolve never to leave the Church through marriage.
-2.  Our Christian young people who find themselves in love with members of other churches, particularly Roman Catholics, must inform the young man or young woman in question of their determined resolution to be married by their own pastor.
-3.  If the Roman Catholic Church can insist upon a written statement from Protestants, we have as much right to demand a written pledge from Catholics who marry our members. This promise should embrace the statement that the Catholic party will not insist upon a second ceremony by the priest and that he regards this marriage as valid in every respect despite the teachings of his Church. The statements should further specify that children of this union shall be brought up in our faith and that no objection will be raised to this procedure. Besides, the assurance must be given that no pressure is to be exerted by the Catholic party in the effort to win the non-Catholic member for that Church.
-4.  Our young people, should see to it that their life partner in a mixed marriage is consistently and tactfully given the Church's point of view, particularly through tracts, books, attendance at church services and adult classes. Lectures on the home and family worship have proved especially effective.
+1. Every member of our Church, pledged to its truth and its support, must earnestly and prayerfully resolve never to leave the Church through marriage.
+2. Our Christian young people who find themselves in love with members of other churches, particularly Roman Catholics, must inform the young man or young woman in question of their determined resolution to be married by their own pastor.
+3. If the Roman Catholic Church can insist upon a written statement from Protestants, we have as much right to demand a written pledge from Catholics who marry our members. This promise should embrace the statement that the Catholic party will not insist upon a second ceremony by the priest and that he regards this marriage as valid in every respect despite the teachings of his Church. The statements should further specify that children of this union shall be brought up in our faith and that no objection will be raised to this procedure. Besides, the assurance must be given that no pressure is to be exerted by the Catholic party in the effort to win the non-Catholic member for that Church.
+4. Our young people, should see to it that their life partner in a mixed marriage is consistently and tactfully given the Church's point of view, particularly through tracts, books, attendance at church services and adult classes. Lectures on the home and family worship have proved especially effective.
 
 #### TRUE SPIRITUAL UNITY
 
@@ -3036,7 +3209,7 @@ No lengthy argument is required to show which of these two couples has proceeded
 
 Altogether, then, engagement is as serious and prayer-provoking as it is vibrant with anticipation of the future and exultant in its present joy. Engaged couples should not permit themselves to lose. sight of the fact that, while their affianced state is really a preface to their book of marriage, the very foreword of this book of varied and vital contents must strike a sober, thoughtful key-note and be penned in the happy and reverent terms of Christian consecration.
 
-#### AT THE ALTAR OF THE LORD
+### AT THE ALTAR OF THE LORD
 
 Whatsoever ye do in word or deed, do all in the name of the Lord Jesus. - Col. 3:17
 
@@ -3510,15 +3683,15 @@ A few years later a baby girl of three months was adopted, and the pastor's wife
 
 Experience as codified by the Child Welfare League of America in its "New Adoption Program" emphasizes the following safeguards that should be extended both to the adopted child and the foster-parents:
 
-1.  The identity of the adopting parent should be kept from the natural parent, just as the identity of the natural parent should be concealed from the adopting parent.
-2.  The family that seeks the adoption should have a good home and a normal family life, with the prospective parents well adjusted to each other.
-3.  The child selected should have the physical and intelligence characteristics required to meet "the reasonable expectation" and the home standards of the adopting parents.
-4.  Foster-parents should understand that in adopting a child "they assume as serious and permanent an obligation as do parents rearing their own children."
-5.  Before formal adoption there should be a trial period in which the child actually resides with the prospective adopting parents.
-6.  The child to be adopted should "be wanted for the purpose of completing an otherwise incomplete family group, in which he will receive support, education, loving care, and acquire the feeling of security to which every child is entitled."
-7.  Every possible precaution should be taken to shield the child from any embarrassment connected with his birth, for example, illegitimacy.
-8.  The question as to whether the child's adoption is to be revealed must be dealt with honestly.
-9.  The formality of adoption is to be completed without any publicity.
+1. The identity of the adopting parent should be kept from the natural parent, just as the identity of the natural parent should be concealed from the adopting parent.
+2. The family that seeks the adoption should have a good home and a normal family life, with the prospective parents well adjusted to each other.
+3. The child selected should have the physical and intelligence characteristics required to meet "the reasonable expectation" and the home standards of the adopting parents.
+4. Foster-parents should understand that in adopting a child "they assume as serious and permanent an obligation as do parents rearing their own children."
+5. Before formal adoption there should be a trial period in which the child actually resides with the prospective adopting parents.
+6. The child to be adopted should "be wanted for the purpose of completing an otherwise incomplete family group, in which he will receive support, education, loving care, and acquire the feeling of security to which every child is entitled."
+7. Every possible precaution should be taken to shield the child from any embarrassment connected with his birth, for example, illegitimacy.
+8. The question as to whether the child's adoption is to be revealed must be dealt with honestly.
+9. The formality of adoption is to be completed without any publicity.
 10. Christian foster-parents will thank God for the privilege of being able to bring the adopted child to Christ and will steadfastly pray that the foster relation be hallowed by the Savior's Spirit.
 
 ### DIVORCE
@@ -3853,7 +4026,7 @@ In St. Paul's time wifehood was degraded beyond the reaches of our modern concep
 
 When a young woman marries, she takes the name of her husband to signify that she is his, not in any sense of selfish pos-session, but rather in a lifelong association and loving companionship, distinguished by self-denial and conformity to her loved one's wishes. It may sound outmoded and puritanical to tell young people today that this relation should obtain in their marriages. Yet as every disregard of divine ordinance produces the evidence of its own faultiness, so no woman has ever been able to sacrifice her divinely instituted position in marriage without surrendering something noble and feminine. Wherever a young woman, thrilled by the ecstatic realization of a good husband's love, finds her vocation in helping to make life fuller and better for him, - not as his overlord nor as his servile underling, but as his cooperative companion, - this attitude constitutes a key-stone in the arch of fuller marital understanding. It helps lead to the path along which those who would learn more deeply the fine art of living together may walk in rapture.
 
-### CRADLE — OR CAREER?
+### CRADLE OR CAREER?
 
 Her children arise up and call her blessed - Prov. 31:28
 
@@ -4574,15 +4747,15 @@ When the statue of Rufus Choate, one of the ablest of American statesmen and law
 
 To those who waver in uncertainty as to the benefits of the family altar I direct this dozen of reasons for instituting home devotions:
 
-1.  The family altar will enrich, elevate, and ennoble our homes, the relations between husband and wife, parents and children, as nothing else can.
-2.  Family prayers will minimize domestic misunderstanding and when trouble arises will work quickly for peace and forbearance.
-3.  The family altar, pointing to the complete self-denial and self-sacrifice of Christ, will help to stifle selfishness in us and promote forbearance, generosity, courtesy.
-4.  Home worship will prove invaluable in emphasizing the Christian way of life and the verities of the Christian faith to the children in each family.
-5.  Prayers in the morning will guide us through the day, and their blessings will strengthen us at work, in school, or at play.
-6.  Prayers in the evening will invoke the angels' watchfulness over us and ours, affording light in the darkness and protection in our weakness.
-7.  The family altar will strengthen us to withstand bravely the adversities of life, for it helps to found our homes on that Rock against which all trials and tempests will beat in vain.
-8.  Family prayers will exert a blessed influence on friends who visit our homes or on guests who are sheltered within our walls.
-9.  Prayerful homes will help to reenforce that righteousness which "exalteth a nation."
+1. The family altar will enrich, elevate, and ennoble our homes, the relations between husband and wife, parents and children, as nothing else can.
+2. Family prayers will minimize domestic misunderstanding and when trouble arises will work quickly for peace and forbearance.
+3. The family altar, pointing to the complete self-denial and self-sacrifice of Christ, will help to stifle selfishness in us and promote forbearance, generosity, courtesy.
+4. Home worship will prove invaluable in emphasizing the Christian way of life and the verities of the Christian faith to the children in each family.
+5. Prayers in the morning will guide us through the day, and their blessings will strengthen us at work, in school, or at play.
+6. Prayers in the evening will invoke the angels' watchfulness over us and ours, affording light in the darkness and protection in our weakness.
+7. The family altar will strengthen us to withstand bravely the adversities of life, for it helps to found our homes on that Rock against which all trials and tempests will beat in vain.
+8. Family prayers will exert a blessed influence on friends who visit our homes or on guests who are sheltered within our walls.
+9. Prayerful homes will help to reenforce that righteousness which "exalteth a nation."
 10. The family altar will mightily strengthen the work and the influence of the Church and its agencies throughout the world.
 11. Prayerful homes will honor our heavenly Father and, in turn, be honored by Him.
 12. Families that are fervent in the faith have a foretaste of the heavenly homeland even on earth and enjoy the assurance that in the prepared mansions they will be a part of "the whole family in heaven."
@@ -4635,9 +4808,9 @@ We shall do well to attain the ease and intimacy of prayer which marked the fait
 
 No exceptional ability, no technical preparation, is required to express the sincerity of home prayer. For the benefit particularly of young people who are looking at marriage from the background of a home that never fully appreciated the blessings of the family altar, the following practical suggestions are offered:
 
-1.  Let each devotion embrace at least the reading of a portion of Scripture, a prayer by one of the members of the household, and a prayer in unison. If time and circumstances permit, a few verses should be sung from the hymnal.
-2.  Scriptural reading should be taken from the Bible, while the devotional exercises and the prayers may be read from any of many good devotional books. Usually it will be found that the books with devotional material for every day in the year are more valuable than those containing only prayers for the seven days of the week. Basic in all prayers should be the petition for the forgiveness of sin and the gratitude for Christ's redeeming grace. The spontaneous prayer from the heart of the father or the mother, mentioning the special and individual needs of the household and emphasizing the requests that crowd themselves into the family life, are of , course particularly beneficial, but for some the most difficult of all prayers. — Why is it that we are so often hesitant about discussing with our nearest relatives and kin those needs which are of such indescribable importance for the welfare of our soul?
-3.  The devotional exercise should meet the understanding and the requirements of the younger members of the household.
+1. Let each devotion embrace at least the reading of a portion of Scripture, a prayer by one of the members of the household, and a prayer in unison. If time and circumstances permit, a few verses should be sung from the hymnal.
+2. Scriptural reading should be taken from the Bible, while the devotional exercises and the prayers may be read from any of many good devotional books. Usually it will be found that the books with devotional material for every day in the year are more valuable than those containing only prayers for the seven days of the week. Basic in all prayers should be the petition for the forgiveness of sin and the gratitude for Christ's redeeming grace. The spontaneous prayer from the heart of the father or the mother, mentioning the special and individual needs of the household and emphasizing the requests that crowd themselves into the family life, are of , course particularly beneficial, but for some the most difficult of all prayers. — Why is it that we are so often hesitant about discussing with our nearest relatives and kin those needs which are of such indescribable importance for the welfare of our soul?
+3. The devotional exercise should meet the understanding and the requirements of the younger members of the household.
 
 Let no young husband or wife insist that, because family prayer has been neglected during their entire previous life, it is too late to introduce it after marriage. It is a definite requirement of the Scriptures that we "learn first to show piety at home" (1 Tim. 5:4). And in what way can piety be shown more directly and forcefully than in the sincere outpouring of hearts agitated by joy or sorrow in the common prayers and petitions of the family? How tragic is the confession of a mother who pleads in behalf of the family altar in the Christian Observer: "One of the greatest regrets of my life is that my eldest son (eighteen years old) passed to his reward without having heard his father's and mother's voice lifted in prayer to God at the family altar. O fathers and mothers, would to God I could tell you how intensely I feel the sinfulness of this neglect!"
 
@@ -4771,7 +4944,7 @@ It is noteworthy that, when the Savior describes the heavens of glory, He adapts
 
 With the additional emphasis that the Word of God lays upon the individual in eternity, the names of the elect recorded in the Book of Life, the acknowledgment of each faithful believer by the Savior Himself before His Father in heaven, Dives beholding Abraham and Lazarus in his bosom, no doubt remains in the Christian's mind. He believes that, when the New Testament speaks of "the whole family in heaven" (Eph. 3:15), it includes in this vast picture of the ten thousand times ten thousand the recognition of those who were united in the Spirit-blessed family here on earth.
 
-### "AS THE ANGELS OF GOD IN HEAVEN"
+#### "AS THE ANGELS OF GOD IN HEAVEN"
 
 Yet it is no materialistic heaven that reunites the Christian family. Lord Northcliffe is reported to have sent spirit messages to Miss Louise Owen, who for twenty years served as his private secretary. In these "celestial" revelations the "spirit" of the British publisher and war enthusiast allegedly gave the world these instructions through his amanuensis: "Tell them how one faces the music over here; no hush, no secrecy, no hiding behind others. Tell them that this side is full of regrets and remorse for wasted oppotunities. Tell them we are all working cooperatively over here to bring peace and understanding." The editor's "spirit" also declared that, when Miss Owen was on the lecture platform bringing his message to the British people, he would be at her side. As other who were said to be working in close harmony with him he mentioned Bonar Law, formerly Tory premier of Great Britain; Keir Hardie, the first Labor-Socialist member of the House of Commons; Lord Kitchener; and Sir Henry Wilson, some of whom had been vehemently opposed to Lord Northcliffe during the war.
 
