@@ -166,18 +166,18 @@ PART III. THE OFFENSIVE AGAINST CHRISTIAN MORALITY CHAPTER
 PART IV. CRITERIA OF HAPPY CHOICE
 
 18. THE BEST MARRIAGE AGE
-1.  A Protracted Debate
-1.  Not Too Early!
-1.  Not Too Late!
-1.  Not Too Dissimilar
-1.  BEAUTY PLUS
+    1.  A Protracted Debate
+    2.  Not Too Early!
+    3.  Not Too Late!
+    4.  Not Too Dissimilar
+19. BEAUTY PLUS
     1.  No Pagan Cult of the Body!
     2.  The Secret of Charm Attractive Clothing
     3.  Health and Eugenics
     4.  The Church and Faddist Eugenics
     5.  The Eugenic Elysium
     6.  Inbreeding
-1.  No DOLLAR-SIGN MARRIAGES
+20. No DOLLAR-SIGN MARRIAGES
     1.  The Protest against Dollar-sign Marriages
     2.  The Perils of Money-mindedness
     3.  The Better Way
@@ -185,23 +185,23 @@ PART IV. CRITERIA OF HAPPY CHOICE
     5.  Extravagance in Courtship
     6.  Practical Problems
     7.  Secret Marriage — and Worse
-1.  THE I. Q. FOR HAPPY MARRIAGES
+21. THE I. Q. FOR HAPPY MARRIAGES
     1.  One-sided Genius
     2.  College Training, Domestic Asset or Liability?
     3.  Avoid Educational Gulfs!
     4.  Don't Stop Studying!
-1.  MIXED MARRIAGES
+22. MIXED MARRIAGES
     1.  The Unequal Yoke of Faith and Unbelief Christian and Jewish Intermarriage
     2.  Interdenominational Marriages
     3.  Mixed Marriage of Catholics and Protestants
     4.  True Spiritual Unity
-1.  PIVOTAL PARENTS
+23. PIVOTAL PARENTS
     1.  Parental Self-absorption
     2.  Father, Key-man of Our Social Order Parental Autocracy
     3.  "In-laws" — Domestic Out-laws
     4.  The Sins of the Children The Right to Choose
     5.  "Thou shalt Honor Thy Father and Tby Mother"
-1.  THOSE WHO WAIT - AND WONDER
+24. THOSE WHO WAIT - AND WONDER
     1.  The Problem Stated
     2.  No Marriage Markets!
     3.  Mail-order Marriages
@@ -211,19 +211,19 @@ PART IV. CRITERIA OF HAPPY CHOICE
 PART V. COURTSHIP, ENGAGEMENT, AND MARRIAGE
 
 25. "KEEP THYSELF PURE"
-1.  Exponents of Unrestraint
-1.  Cheap — Vulgar — Sordid!
-1.  "Unclean! Unclean!"
-1.  The Spoliations of Lust Premarriage Examination
-1.  Strength in Chastity
-1.  ENGAGED!
+    1.  Exponents of Unrestraint
+    2.  Cheap — Vulgar — Sordid!
+    3.  "Unclean! Unclean!"
+    4.  The Spoliations of Lust Premarriage Examination
+    5.  Strength in Chastity
+26. ENGAGED!
     1.  Betrothal in the Bible
     2.  Engagement Today
     3.  The Church's Ideal
     4.  A Profound Lesson
     5.  A Thrilling Prelude
     6.  A Time of Preparation
-1.  AT THE ALTAR OF THE LORD
+27. AT THE ALTAR OF THE LORD
     1.  Vulgar Exbibitionism
     2.  American Gretna Greens
     3.  The Marrying Parsons
@@ -235,24 +235,24 @@ PART V. COURTSHIP, ENGAGEMENT, AND MARRIAGE
 PART VI. TWIN MENACES TO WEDDED HAPPINESS
 
 28. THE BLIGHT OF BIRTH CONTROL
-1.  Shrinking Families
-1.  The Overpopulation Bugaboo
-1.  Prevention of Infant Mortality
-1.  Retardation of Child Development
-1.  Elimination of Unfit
-1.  Maternal Relief
-1.  Miscellaneous Birth-control Arguments
-1.  The Physical Penalty
-1.  An Outrage against Nature
-1.  A Moral Degradation
-1.  A Divorce Stimulus
-1.  A Menace to National Prosperity
-1.  Crafty Commercialism
-1.  Its Anti-Scriptural Bias
-1.  The Attitude of Modern Churches
-1.  The Church's Position
-1.  Happiness through Adoption
-1.  DIVORCE
+    1.  Shrinking Families
+    2.  The Overpopulation Bugaboo
+    3.  Prevention of Infant Mortality
+    4.  Retardation of Child Development
+    5.  Elimination of Unfit
+    6.  Maternal Relief
+    7.  Miscellaneous Birth-control Arguments
+    8.  The Physical Penalty
+    9.  An Outrage against Nature
+    10. A Moral Degradation
+    11. A Divorce Stimulus
+    12. A Menace to National Prosperity
+    13. Crafty Commercialism
+    14. Its Anti-Scriptural Bias
+    15. The Attitude of Modern Churches
+    16. The Church's Position
+    17. Happiness through Adoption
+29. DIVORCE
     1.  A Nation of Home-breakers
     2.  No Promise of Improvement
     3.  What Is Wrong with Divorce?
@@ -263,7 +263,60 @@ PART VI. TWIN MENACES TO WEDDED HAPPINESS
     8.  Companionate Marriage and Divorce
     9.  Antidotes to Divorce
 
-PART VII. ELEMENTS OF WEDDED HAPPINESS 30. "... AND OBEY" 1. The Fight for Women's Rights 2. The Flares of Feminism 3. The Anti-"obey" Campaign 4. "The Husband Is the Head of the Wife" 5. Husbandly Headship - How Far? 6. "Even as Christ Loved the Church" 31. CRADLE OR CAREER? 1. The World's Greatest Women 2. America's Greatest Women 3. "Thou Excellest Them All" 4. Career after Marriage? 5. Champions of Working Wives 6. The Clash of Career and Domestic Interests 32. BACK TO DOMESTICITY! 1. The Practical Housewife 2. Premarriage Training 3. The Golden A-b-c of Family Felicity 33. FAMILY FINANCES 1. Increased Levies on the Household Treasury 2. Agencies of Financial Embarrassment 3. A New Era with Financial Adjustment 4. Budget Blessings 5. Partners in Family Finance 34. OWN YOUR OWN 1. Financial Attractions of Home-ownership 2. More than Dreams of Profit 3. Opposing Attitudes 4. The Acquisition of a Home 5. "Bless This House" 35. QUICKSAND COUNSEL 1. Newspaper Counselors 2. Medical Counselors 3. Scientific Counsel 4. The Counsel of Superstition 5. Educational Counsel 36. AT THE FAMILY ALTAR 1. Breaking with the Past 2. Radiated Blessings 3. The Supreme Tragedy 4. No Apologies for Family Prayers! 5. A Program for Hearthside Devotions 6. "As for Me and My House" 37. THE SECOND MARRIAGE 1. The Protest of Christianity 2. Dangers and Difficulties in Remarriage 3. No Death-bed Pledges! 38. THE REUNION IN HEAVEN 1. Eternity - No Nirvana 2. The Comfort of the Scriptures 3. "As the Angels of God in Heaven" 4. The Appeal of Heavenly Reunion
+PART VII. ELEMENTS OF WEDDED HAPPINESS
+
+30. "... AND OBEY"
+    1.  The Fight for Women's Rights
+    2.  The Flares of Feminism
+    3.  The Anti-"obey" Campaign
+    4.  "The Husband Is the Head of the Wife"
+    5.  Husbandly Headship - How Far?
+    6.  "Even as Christ Loved the Church"
+31. CRADLE OR CAREER?
+    1.  The World's Greatest Women
+    2.  America's Greatest Women
+    3.  "Thou Excellest Them All"
+    4.  Career after Marriage?
+    5.  Champions of Working Wives
+    6.  The Clash of Career and Domestic Interests
+32. BACK TO DOMESTICITY!
+    1.  The Practical Housewife
+    2.  Premarriage Training
+    3.  The Golden A-b-c of Family Felicity
+33. FAMILY FINANCES
+    1.  Increased Levies on the Household Treasury
+    2.  Agencies of Financial Embarrassment
+    3.  A New Era with Financial Adjustment
+    4.  Budget Blessings
+    5.  Partners in Family Finance
+34. OWN YOUR OWN
+    1.  Financial Attractions of Home-ownership
+    2.  More than Dreams of Profit
+    3.  Opposing Attitudes
+    4.  The Acquisition of a Home
+    5.  "Bless This House"
+35. QUICKSAND COUNSEL
+    1.  Newspaper Counselors
+    2.  Medical Counselors
+    3.  Scientific Counsel
+    4.  The Counsel of Superstition
+    5.  Educational Counsel
+36. AT THE FAMILY ALTAR
+    1.  Breaking with the Past
+    2.  Radiated Blessings
+    3.  The Supreme Tragedy
+    4.  No Apologies for Family Prayers!
+    5.  A Program for Hearthside Devotions
+    6.  "As for Me and My House"
+37. THE SECOND MARRIAGE
+    1.  The Protest of Christianity
+    2.  Dangers and Difficulties in Remarriage
+    3.  No Death-bed Pledges!
+38. THE REUNION IN HEAVEN
+    1.  Eternity - No Nirvana
+    2.  The Comfort of the Scriptures
+    3.  "As the Angels of God in Heaven"
+    4.  The Appeal of Heavenly Reunion
 
 INDEX
 
